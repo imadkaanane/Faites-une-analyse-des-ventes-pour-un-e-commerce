@@ -1,3 +1,4 @@
+![Alt text](Faites-une-analyse-des-ventes-pour-un-e-commerce.png/b851110c03cf43afadd2ebc1cc058510UCPWy9liYoCMZ9Zw-0.png)
 ![Alt text](Faites-une-analyse-des-ventes-pour-un-e-commerce.png/b851110c03cf43afadd2ebc1cc058510UCPWy9liYoCMZ9Zw-1.png) 
 ![Alt text](Faites-une-analyse-des-ventes-pour-un-e-commerce.png/b851110c03cf43afadd2ebc1cc058510UCPWy9liYoCMZ9Zw-2.png) 
 ![Alt text](Faites-une-analyse-des-ventes-pour-un-e-commerce.png/b851110c03cf43afadd2ebc1cc058510UCPWy9liYoCMZ9Zw-3.png)
@@ -5,4 +6,3 @@
 ![Alt text](Faites-une-analyse-des-ventes-pour-un-e-commerce.png/b851110c03cf43afadd2ebc1cc058510UCPWy9liYoCMZ9Zw-5.png)
 ![Alt text](Faites-une-analyse-des-ventes-pour-un-e-commerce.png/b851110c03cf43afadd2ebc1cc058510UCPWy9liYoCMZ9Zw-6.png)
 ![Alt text](Faites-une-analyse-des-ventes-pour-un-e-commerce.png/b851110c03cf43afadd2ebc1cc058510UCPWy9liYoCMZ9Zw-7.png)
-![Alt text](Faites-une-analyse-des-ventes-pour-un-e-commerce.png/b851110c03cf43afadd2ebc1cc058510UCPWy9liYoCMZ9Zw-0.png)
